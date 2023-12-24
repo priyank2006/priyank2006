@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [https://priyank-modi.netlify.app](https://priyank-modi.netlify.app)
 
-- 📫 How to reach me **priyankmodi662006@gmail.com**
+- 📫 How to reach me **priyankmodi662006@gmail.com** or **+91-9484637910**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
